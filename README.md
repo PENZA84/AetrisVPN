@@ -1,4 +1,4 @@
-<img width="1456" height="720" alt="image" src="https://github.com/user-attachments/assets/228601ce-828c-4e92-8b49-e1f98f919673" />
+
 ---
 
 🌐 **Наш сайт:** [Перейти на сайт](http://f1275977.xsph.ru)
